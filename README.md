@@ -1,1 +1,0 @@
-# mimus-artistic-touch
